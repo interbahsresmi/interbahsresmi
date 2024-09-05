@@ -1,2 +1,2 @@
 İNTERBAHİS GÜNCEL ADRES GİRİŞ'İ! HEMEN GÜNCELLENEN GİRİŞ ADRESİNE ULAŞIN! RESMİ HABER KAYNAĞINA HOŞGELDİNİZ.
-<h1><a href="http://gg.gg/1bz72d" title="İNTERBAHİS GİRİŞ YAP">İNTERBAHİS GİRİŞ YAP</a></h1>
+<h1><a href="https://n9.cl/u1qyo" title="İNTERBAHİS GİRİŞ YAP">İNTERBAHİS GİRİŞ YAP</a></h1>
